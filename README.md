@@ -1,1 +1,1 @@
-# 30-youknowdavibes
+They were a junior in college and and wanted a job at Twitter.
